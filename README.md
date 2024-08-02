@@ -17,7 +17,7 @@ Oyuncular      : Ryan Reynolds, Hugh Jackman, Emma Corrin, Matthew Macfadyen, Da
 Serbest bırakmak    : 2024-07-24
 Çalışma süresi : 128 dakika.
 
-Stüdyo : Walt Disney Pictures, Pixar
+Stüdyo : Marvel Studios
 
 Deadpool 3 ve Wolverine filmi Halis Serbest’in memleketinde yasaklandı! Deadpool 3 ve Wolverine’in katili: “Pişman değilim, filmi İzlemeyeceğim”
 
